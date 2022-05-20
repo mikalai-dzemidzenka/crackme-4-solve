@@ -1,1 +1,0 @@
-# crackme-4-solve
